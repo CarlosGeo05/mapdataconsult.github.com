@@ -1,1 +1,0 @@
-# mapdataconsult.github.com
